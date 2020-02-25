@@ -1,0 +1,2 @@
+# ogm
+Networ marketing cripto
